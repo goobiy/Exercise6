@@ -1,1 +1,1 @@
-# Exercise6
+# Guðmundur Alexander Magnússon og Hafþór Haugen
